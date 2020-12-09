@@ -3,7 +3,7 @@
 
 
 
-
-# 目录[跳转](https://u3uuuuuu.github.io/index）
+# 目录
+[目录连接](https://u3uuuuuu.github.io/index)
 
 
