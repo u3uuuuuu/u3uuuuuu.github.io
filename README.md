@@ -4,6 +4,6 @@
 
 
 # 目录
-[目录连接](https://u3uuuuuu.github.io/index)
+[目录连接](https://u3uuuuuu.github.io/Index)
 
 
